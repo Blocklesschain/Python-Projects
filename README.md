@@ -6,5 +6,3 @@ Above are the projects I am building, step by step untill I start working on com
 Will keep updating this page every year based on my progress and journey, stay connected.
 Thanks,
 Proffgodswill.
-
-Twitter: @Proffgodswill
